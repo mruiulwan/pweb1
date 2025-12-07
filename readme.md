@@ -1,0 +1,1 @@
+hallo sedang belajar
